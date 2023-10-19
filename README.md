@@ -1,5 +1,6 @@
 # JiseongJseong
- 
+
+ contact : jisung9309@gmail.com
 
 ---
 
